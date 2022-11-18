@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on simple and comprehensive projects.
 - 📫 Please tag me and check my random rants on my Twitter handle @geefealba.
 - It's nice to meet you!
-- Please don't look for green squares on my profile, because you can't find them here! 🙃
+- If you like to collaborate, please contact me at geefealba@gmail.com. I'd love to hear from you. 
 <!---
 pipayski/pipayski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
